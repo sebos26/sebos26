@@ -24,7 +24,7 @@ Soy un apasionado por la tecnología con intereses en **desarrollo de software, 
 - Desarrollo de ideas innovadoras para **startups tecnológicas**
 
 ## 📫 Contáctame en...
-- 📧 Email: sebos26@example.com
+- 📧 Email: sebasanmartin456@gmail.com
 - 🐦 Twitter: [@sebos26](https://x.com/Sebasti56550116)
 - 💼 LinkedIn: [Sebastián Sanmartín](https://www.linkedin.com/in/franklin-sanmartin-quiroz-17a6b2333/)
 
